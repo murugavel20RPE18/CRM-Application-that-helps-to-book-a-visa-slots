@@ -3,7 +3,12 @@
 2. Empathy map for CRM application That helps to Book a Visa Slot
 3. Brainstorm and idea polarization map for CRM application That helps to Book a Visa Slot
 4. Finished course video 24 task
-Team leader :
-Team member:trailblazer.me/id/pkasinathan2
-Team member:trailblazer.me/id/nirmn1
-Team member:trailblazer.me/id/tathangavel
+
+Team leader :https://trailblazer.me/id/murugavel20rpe18
+             https://github.com/murugavel20RPE18
+Team member:https://trailblazer.me/id/pkasinathan2
+            https://github.com/Prakash-69/prakash-
+Team member:https://trailblazer.me/id/nirmn1
+            https://github.com/nirmalkumar-19 
+Team member:https://trailblazer.me/id/tathangavel
+            
