@@ -4,6 +4,6 @@
 3. Brainstorm and idea polarization map for CRM application That helps to Book a Visa Slot
 4. Finished course video 24 task
 Team leader :
-Team member:
-Team member:
-Team member:
+Team member:trailblazer.me/id/pkasinathan2
+Team member:trailblazer.me/id/nirmn1
+Team member:trailblazer.me/id/tathangavel
